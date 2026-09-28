@@ -71,11 +71,11 @@ May the knots of the heart continue to loosen.
 May you recognize what is passing without clinging to it, and what is lasting without trying to own it.
 May you return again and again to the quiet place beneath all your striving.
 
-And when the old question rises once more—
+And when the old question rises once more:
 
 *What remains?*
 
-—may you have the courage of Nachiketa to stay with it.
+May you have the courage of Nachiketa to stay with it.
 
 Not anxiously.
 
