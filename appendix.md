@@ -1,4 +1,4 @@
-# The Katha Upanishad
+# The Katha Upanishad {#the-katha-upanishad-appendix}
 
 ## A Modern Contemplative Rendering
 
