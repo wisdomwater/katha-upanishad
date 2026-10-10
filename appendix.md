@@ -30,7 +30,7 @@ May we never turn against one another.
 
 ---
 
-# Part One
+# Part One {#appendix-part-1-33}
 
 ## First Valli — At the House of Death
 
@@ -206,7 +206,7 @@ Nachiketa said:
 
 ---
 
-# Part One
+# Part One {#appendix-part-1-209}
 
 ## Second Valli — The Pleasant and the Good
 
@@ -370,7 +370,7 @@ Who can fully comprehend That?
 
 ---
 
-# Part One
+# Part One {#appendix-part-1-373}
 
 ## Third Valli — The Chariot and the Inner Self
 
@@ -470,7 +470,7 @@ And one who recites this deepest teaching with reverence among seekers, or at a 
 
 ---
 
-# Part Two
+# Part Two {#appendix-part-2-473}
 
 ## First Valli — Turning Inward
 
@@ -570,7 +570,7 @@ As pure water poured into pure water becomes one with it, so the Self of the awa
 
 ---
 
-# Part Two
+# Part Two {#appendix-part-2-573}
 
 ## Second Valli — The City of Eleven Gates
 
@@ -680,7 +680,7 @@ Because That shines, everything is revealed.
 
 ---
 
-# Part Two
+# Part Two {#appendix-part-2-683}
 
 ## Third Valli — The Tree of Life and the Freedom Beyond Death
 
